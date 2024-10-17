@@ -1,0 +1,1 @@
+# Seminari_1_Parsagashvili_Aleksandre_gr_13
